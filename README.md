@@ -1,1 +1,1 @@
-hi dis reposuuutory is fot achievement bye
+hi dis reposuuuitory is for achievement bye
